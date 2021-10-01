@@ -6,4 +6,4 @@ If you want to ask something you can write to me on:<br>
 Twitter: https://twitter.com/OdemTut<br>
 Instagram: https://www.instagram.com/vlads547<br>
 VK: https://vk.com/vlads55<br>
-Mail: ivaro5@yandex.ru<br>
+Email: ivaro5@yandex.ru<br>
